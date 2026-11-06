@@ -9,6 +9,11 @@ would have used. We just want to see how you think. Do it whenever works for
 you. We expect it to take **about an hour**. Please don't spend more than
 two. Unfinished is fine. We all have things to do.
 
+## Who can apply
+
+If you're an undergrad, you need to be **graduating in Fall 2026 or Spring
+2027**. This position isn't open to current juniors.
+
 ## ⚠️ Please do this without AI
 
 This is the one rule we really care about, so here it is up front:
